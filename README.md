@@ -1,0 +1,1 @@
+# A háttérben meghúzódó Gyurcsány szál
